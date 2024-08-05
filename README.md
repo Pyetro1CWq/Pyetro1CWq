@@ -6,4 +6,4 @@ estou estudando na alura
 
 🤓☝
 
-![](https://media.tenor.com/-qBsG1HwR4oAAAAM/cat-dance-dancing-cat.gif)
+![](https://media.tenor.com/DuThn51FjPcAAAAM/nerd-emoji-nerd.gif)
